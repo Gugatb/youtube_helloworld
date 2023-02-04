@@ -9,4 +9,4 @@ C++
 
 Youtube Channel
 -----------------------------------------------------------------------------------------
-https://www.youtube.com/watch?v=XSMlUe-AHks
+https://youtu.be/cBz4oLdO4js
